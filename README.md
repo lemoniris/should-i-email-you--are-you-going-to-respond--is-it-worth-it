@@ -3,3 +3,5 @@
 its still a toss up if youre ever going to respond 🤷🏻‍♀️
 
 i didnt see your email until now ... thanks ... hmmmm
+
+are you going to responddd
